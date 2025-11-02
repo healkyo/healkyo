@@ -1,16 +1,16 @@
-## Hi there 👋
+*──── Welcome ────*
 
-<!--
-**healkyo/healkyo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+⋅˚₊‧ *I don’t code — I just made this profile for fun.* ‧₊˚ ⋅
 
-Here are some ideas to get you started:
+**You wont find much here**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+---
+
+Contact & Socials 𖹭.ᐟ
+- Discord: `9cya`
+- Tiktok: [@healkyo](https://www.tiktok.com/@healkyo)  
+ 
+
+
+
+Updating
