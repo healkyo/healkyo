@@ -6,11 +6,12 @@
 
 ---
 
-Contact & Socials 𖹭.ᐟ
+
 - Discord: `9cya`
-- Tiktok: [@healkyo](https://www.tiktok.com/@healkyo)  
+
  
 
+     <img src="https://i.gifer.com/ZZ5H.gif" alt="Loading..." width="40" />
 
 
-Updating
+
