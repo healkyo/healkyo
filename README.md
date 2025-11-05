@@ -1,6 +1,4 @@
-*──── Welcome ────*
-
-⋅˚₊‧ *I don’t code — I just made this profile for fun.* ‧₊˚ ⋅
+*I don’t code — I just made this profile for fun.*
 
 **You wont find much here**
 
